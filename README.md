@@ -1,1 +1,0 @@
-# 34group_KushkoV
